@@ -1,4 +1,4 @@
-Just an honest, blue collar american male. 
+Just an honest blue collar american male. 
 
 <!---
 HBCAMx/HBCAMx is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
